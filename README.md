@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **swarajp688@gmail.com**
 
-- 📄 Know about my experiences [Click me](https://drive.google.com/file/d/1WXhYGbu3Wgv-QSqF0KkKJh5iHjMy7bQx/view?usp=sharing)
+- 📄 Know about my experiences [Click me](https://drive.google.com/file/d/1RlPrf4LDhmKoMgLEWLzAQInEUZjRegKr/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
